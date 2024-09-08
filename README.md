@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ami-1008
-Student, undergrad second year, CS, India
+- Student, undergrad second year, CS, India
 
 
 
